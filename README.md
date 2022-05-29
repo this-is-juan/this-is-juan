@@ -4,7 +4,8 @@
 <br>
 
 ### Get in touch
-📷 [@thisisijuan.eu](https://www.instagram.com/thisisjuan.eu)
+📷 [Instagram](https://www.instagram.com/thisisjuan.eu)
 <br>
-🐦 [@thisisjuan_eu](https://twitter.com/thisisjuan_eu)
-
+🐦 [Twitter](https://twitter.com/thisisjuan_eu)
+<br>
+👷 [LinkedIn](https://www.linkedin.com/in/jusancho/)
